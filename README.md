@@ -1,2 +1,1 @@
 
-Rozwój pracy masgiterskiej.
